@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=OscarP1astr1&color=90991D&label=pears&style=plastic&abbreviated=true)
-<p align="center">ᴿⁱᶜᵏʸ ᴰⁱᶜᵏʸ ᴰᵒᵒᴰᵃʰ ᴳʳⁱᵐᵉˢ ᴮᵒᵒᵐ ˢʰᵃᵏᵃ ᴸᵃᶜᵏᵃ ᴮᵒᵒᵐ ˢʰᵃᵏᵃ
+<p align="center">ᴿⁱᶜᵏʸ ᴰⁱᶜᵏʸ ᴰᵒᵒᴰᵃʰ ᴳʳⁱᵐᵉˢ ᴮᵒᵒᵐ ˢʰᵃᵏᵃ ᴸᵃᶜᵏᵃ ᴮᵒᵒᵐ ˢʰᵃᵏᵃ◞
 <p align="center"><a href="https://oscarp1astr1.straw.page">strawpage</a></p>
 
 ⠀⠀
