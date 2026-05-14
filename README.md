@@ -10,7 +10,7 @@
 ⠀⠀
 
 <p align="center"><img width="600" height="250"alt src="https://i.pinimg.com/1200x/b1/35/db/b135db950e36ed408b8f3c0ec2885975.jpg"/>
-<p align="center"><img width="600" height="250"alt src="https://i.pinimg.com/736x/fb/c8/c8/fbc8c83e296a7ef5505e1e74eefbdd77.jpg"/>
+<p align="center"><img width="300" height="250"alt src="https://i.pinimg.com/736x/fb/c8/c8/fbc8c83e296a7ef5505e1e74eefbdd77.jpg"/>
 <p align="center"> 𓂃 𝘽𝚎ₐₙ ₒᵣ 𝙄ⁿₖₐy  -  1⁵ 🪲℘
 
 
