@@ -10,13 +10,13 @@
 ⠀⠀
 
 
-<p align="center"><img width="300" height="250"alt src="https://i.pinimg.com/736x/fb/c8/c8/fbc8c83e296a7ef5505e1e74eefbdd77.jpg"/>
-<p align="center">𓂃 𝘽𝚎𝚊𝚗 ⸝ 𝑩𝚊𝚋𝚎 ₒᵣ 𝙄𝚗𝚔𝚊𝚢 -  1⁵ 🪲℘
+<p align="center"><img width="600" height="400"alt src="https://i.pinimg.com/originals/46/bf/80/46bf808e8c364ea6dd0f145e6b18a7c5.gif"/>
+<p align="center"> I LOVE MOTOSPORTS ℘
 
 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- ㅤ<p align="center">ᶠ¹  ᶠᵃⁿˢ ⁱⁿᵗ!!!
+ ㅤ<p align="center">F1 FANS INTERACT + WW2 FANS PLS!!!
 
 
  ⠀
