@@ -5,7 +5,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=OscarP1astr1&color=90991D&label=𝙋e𝚊ʀˢ&style=plastic&abbreviated=true)
 <p align="center"> (˶‾᷄ ⁻̫ ‾᷅˵)
-<p align="center"><a href="https://oscarp1astr1.straw.page">𝙨t𝚛𝚊w𝘱𝙖gₑ</a></p>
+<p align="center"><a href="https://inkayyyy.straw.page">𝙨t𝚛𝚊w𝘱𝙖gₑ</a></p>
 
 ⠀⠀
 
