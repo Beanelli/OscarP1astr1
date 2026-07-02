@@ -3,7 +3,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=OscarP1astr1&color=90991D&label=𝙋e𝚊ʀˢ&style=plastic&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=OscarP1astr1&color=90991D&label=𝙇𝗈𝚟ₑˢ&style=plastic&abbreviated=true)
 <p align="center"><a href="https://inkayyyy.straw.page">𝙨t𝚛𝚊w𝘱𝙖gₑ</a></p>
 
 ⠀⠀
