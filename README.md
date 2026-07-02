@@ -9,15 +9,13 @@
 ⠀⠀
 
 
-<p align="center"><img width="600" height="400"alt src="https://i.pinimg.com/originals/46/bf/80/46bf808e8c364ea6dd0f145e6b18a7c5.gif"/>
 <p align="center"><img width="600" height="400"alt src="https://i.pinimg.com/736x/ae/7a/c8/ae7ac84519b08f54bcd55a315c6064ed.jpg"/>
 
-<p align="center"> I LOVE MOTOSPORTS ℘
 
 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- ㅤ<p align="center">F1 FANS INTERACT + WW2 FANS PLS!!!
+ ㅤ<p align="center">F1 / MotoGp / BofB / Dr Nowhere Fan int!!! ℘
 
 
  ⠀
