@@ -10,7 +10,7 @@
 
 
 <p align="center"><img width="600" height="400"alt src="https://i.pinimg.com/originals/46/bf/80/46bf808e8c364ea6dd0f145e6b18a7c5.gif"/>
-<p align="center"><img width="600" height="400"altsrc="https://i.pinimg.com/736x/9a/6c/a0/9a6ca0b398dcf57199d7c851a0edff96.jpg"/>
+
 
 <p align="center"> I LOVE MOTOSPORTS ℘
 
